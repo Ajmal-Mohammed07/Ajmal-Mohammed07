@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning google ux certificate Program
 - 💞️ I’m looking to collaborate on Ux Ui Projects
 - 📫 How to reach me ajmalmohammed007@gmail.com
-- 😄 Pronouns: ...
 - ⚡ Fun fact: Designing
 
 <!---
